@@ -1,1 +1,1 @@
-this is a pancake recipe made by martha stewarts.
+recipe of homemade pancakes made by martha stewart

@@ -1,4 +1,4 @@
-Directions Instructions Checklist
+DirectionsInstructions Checklist
 Step 1
 Preheat oven to 200 degrees; have a baking sheet or heatproof platter ready to keep cooked pancakes warm in the oven. In a small bowl, whisk together flour, sugar, baking powder, and salt; set aside.
 
